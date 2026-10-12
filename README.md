@@ -1,0 +1,1 @@
+An AI-powered crypto intelligence platform that helps everyone, from complete beginners to experienced traders, understand the market, discover trading opportunities, analyse cryptocurrencies and make better-informed decisions.
